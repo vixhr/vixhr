@@ -1,1 +1,1 @@
-i got a gun no girls girls gotta die wake up with no huhhuhyahhabshdbhsbhabhgdf julliloliuolilolloilollio i can i can't baby jeans you and your pe nis inpoopments juuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuush jush juuj jump in the caac
+follow xykmr for more bangers
